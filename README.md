@@ -1,0 +1,1 @@
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38C2FF&width=435&lines=Hi%2C+I'm+0xsrh;I'm+a+cybersecurity+enthusiast+learning+how+to+protect+myself+and+others;Gamer%2C+Diablo+addict+and+interested+in+game+reversingI+love+iced+vanilla+lattes+%3A);Discord%3A+0xsrh" alt="Typing SVG" /></a>
